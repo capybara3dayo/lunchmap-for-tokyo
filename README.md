@@ -10,4 +10,4 @@
 1. [たもいやんせ](https://tabelog.com/tokyo/A1303/A130301/13001717/)
 1. [SIX KITCHEN](https://tabelog.com/tokyo/A1303/A130301/13214471/)
 1. [肴とり](https://tabelog.com/tokyo/A1303/A130301/13198186/)
-1. Tonarihttps://tabelog.com/tokyo/A1303/A130301/13196746/
+1. [Tonari](https://tabelog.com/tokyo/A1303/A130301/13196746/)
