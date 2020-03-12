@@ -7,3 +7,7 @@
 1. [陳家私菜](https://www.chin-z.com/page/tenpo/shibuya.html)
 1. [喜楽](https://tabelog.com/tokyo/A1303/A130301/13001705/)
 1. [麺処 竹川](https://tabelog.com/tokyo/A1303/A130301/13178370/)
+1. [たもいやんせ](https://tabelog.com/tokyo/A1303/A130301/13001717/)
+1. [SIX KITCHEN](https://tabelog.com/tokyo/A1303/A130301/13214471/)
+1. [肴とり](https://tabelog.com/tokyo/A1303/A130301/13198186/)
+1. Tonarihttps://tabelog.com/tokyo/A1303/A130301/13196746/
