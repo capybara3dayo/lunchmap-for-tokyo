@@ -3,8 +3,8 @@
 ## 渋谷
 
 1. [和田丸](https://tabelog.com/tokyo/A1303/A130301/13002065/)
-  - 海鮮丼、ねばねば丼がうまい。
-  - おしぼりがくさいときもある
+    - 海鮮丼、ねばねば丼がうまい。
+    - おしぼりがくさいときもある
 3. [szechwan restaurant陳](https://www.tokyuhotels.co.jp/cerulean-h/restaurant/chen/index.html)
   1. 陳憲一の中華。何か特別なときに
 5. [おにやんま](https://shibuya.parco.jp/shop/detail/?cd=025855)
