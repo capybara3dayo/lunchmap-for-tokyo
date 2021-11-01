@@ -16,6 +16,8 @@
 4. [マンチズバーガー シャック(MUNCH’S BURGER SHACK)](https://www.shiba-shotenkai.com/archives/177)
     - 美味いけど、高い
     - 高級ハンバーガー
+5. [サンギュリエ](https://tabelog.com/tokyo/A1314/A131401/13087879/)
+    - ムルギーカレーが美味い。そこそこスパイシーなので辛いの苦手だとちょっときついかも
 
 
 ## 渋谷
