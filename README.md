@@ -35,7 +35,21 @@
 1. [四川小吃 雲辣坊](https://goo.gl/maps/qfaECqM3jCopTFUA7)
     - 激込み
     - 四川雅園と兄弟店？メニューの見た目がにているだけかもしれないが
-
+1. [唐揚げ 一筋](https://goo.gl/maps/MFi839pYYWaYQhfz9)
+    - おにもり唐揚げ
+1. [京串 六波羅](https://g.page/arasaka-rokuhara?share)
+    - 目の前で揚げて、揚げたてを1本づつ出してくれる
+    - ランチなら1Kとかで食べられたはず。いまはしらない
+1. [Napoli’s 赤坂店](https://g.page/napolis-akasaka?share)
+    - 窯焼きピザをワンコインとかで食べられる。
+    - ピザたべたいときはここ。ポテトとかセットにするより2枚食べたほうが満足感たかい。ピザ食べに来てるのだから
+1. [黒座暁樓](https://goo.gl/maps/P9Lw7rVtnE857RTw8)
+    - 魚系定食がうまい
+    - 雰囲気もよい
+1. [やげんぼり](https://goo.gl/maps/yLMTKexYi1vn2Hqo7)
+    - 出汁巻き
+    - 知らずにつれていかれて、おかずが出汁巻きだけだったときのインパクトはすごい
+    - 出汁巻きだけでおいしんだけどね、、、
 
 
 ## 浜松町
